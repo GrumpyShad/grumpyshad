@@ -1,16 +1,15 @@
-## Hi there 👋
+ <h1 align="center"> 
+[💌]  𝗯𝗿𝗶𝗇𝗀 𝗆𝖾 𝗍𝗈 𝐥𝐢𝖿𝖾  ;   ✧    '
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
+지   >   ཀ` ⠀ ♱   . 물린 마음
 
-<!--
-**GrumpyShad/grumpyshad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![divider](https://github.com/user-attachments/assets/cc3a26af-1dbc-4b4c-bd98-603752343a6a)
 
-Here are some ideas to get you started:
+## <h1 align="center"> ᗰY IᑎTᖇO !! </h1>  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h1 align="center"> i got lazy guys </h1>  
+
+ 
+<p align="right">
+<img src="https://img.shields.io/badge/SOCIALLY-%20AWKWARD-red">
+</p>
