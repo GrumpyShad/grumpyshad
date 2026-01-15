@@ -10,24 +10,21 @@
 <img src="https://github.com/user-attachments/assets/cc3a26af-1dbc-4b4c-bd98-603752343a6a">
 </p>
 
-<h1 align="center"> ᗰY IᑎTᖇO !! </h1>
+<h1 align="center"> ᗰY TIᑎY ᑕOᖇᑎEᖇ  !! </h1>
 
-<p align="center">
-𓆩♡𓆪  welcome to my little corner  𓆩♡𓆪  
-</p>
 
 ---
 
 <h3 align="center">
-about me
+about me 
 </h3>
 
 <p align="center">
-✦ student  
+✦ student, so no +18 subjects...
 <br>
-✦ learning & overthinking  
+✦ i am often silent, mostly because idk what to say, and my social skills aren't really good … so excuse me! and be patient plz 🙏
 <br>
-✦ driven by curiosity and quiet chaos  
+✦ driven by curiosity and quiet chaos, I am always open to making some new friends (≧∀≦) so int freely hehhehw
 </p>
 
 ---
@@ -49,11 +46,11 @@ interests
 </h3>
 
 <p align="center">
-✧ coding slowly but surely  
+✧ coding slowly but surely, I love learning new stuff and always looking for new things to do
 <br>
-✧ aesthetics & symbols  
+✧ Sonic the hedgehog!! (obvious..) Amy and Shadow are my kinnies, favs hedgies(ゝω・´★)
 <br>
-✧ observing more than speaking  
+✧ observing more than speaking,  
 </p>
 
 ---
@@ -63,5 +60,5 @@ interests
 </p>
 
 <p align="center">
-𓂃𓈒𓏸  thanks for stopping by  𓂃𓈒𓏸
+𓂃𓈒𓏸  thanks for reading!! 
 </p>
