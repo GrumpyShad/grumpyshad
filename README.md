@@ -12,3 +12,10 @@ just a quick REALLY NEEDED points while i work on this !!! pls read before inter
 <div align="center">
 
 $\color{#1f5677}{\textsf{I APOLOGIZE IN ADVANCE if i make you uncomfy!! I srs DO NOT mean it}}$ $\color{#357a88}{\textsf{, i have requests disabled so u must whisper me if you}}$ $\color{#4b8383}{\textsf{ want me to add u/want to give me an item!!!!}}$
+
+
+<div align="center">
+
+$\color{#a53e51}{\textsf{if we're alr friends, don't be shy to approach me, i ALWAYS enc c*h!! doesn't matter}}$ $\color{#98666d}{\textsf{if i'm already with other friends, unless said otherwise ON NAME!}}$
+
+</div>
