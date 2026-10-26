@@ -19,3 +19,11 @@ $\color{#1f5677}{\textsf{I APOLOGIZE IN ADVANCE if i make you uncomfy!! I srs DO
 $\color{#a53e51}{\textsf{if we're alr friends, don't be shy to approach me, i ALWAYS enc c*h!! doesn't matter}}$ $\color{#98666d}{\textsf{if i'm already with other friends, unless said otherwise ON NAME!}}$
 
 </div>
+
+
+<div align="center">
+
+guys i am extremely friendly (i swear), im just kinda awkward to be around at first becuase i am NOT good at keeping convos going, mainly because i am offtab / afk / busy with school ALMOST ALL THE TIME!! Please keep that in mind before you int ,, and be patient with me please,
+cries
+
+</div>
