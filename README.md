@@ -1,29 +1,9 @@
-  ## WIP since im too lazy and dont have imagination to finish ts soon
- <p align="center">
-just a quick REALLY NEEDED points while i work on this !!! pls read before interacting!! ^_^
-
-
+  ## WIP since im too lazy and dont have imagination to finish ts soon ++ WARNINGS!!
 <div align="center">
 
- $\color{#4c1b0f}{\textsf{DNI LIST :: ex friends, ppl who just want my style, +25y/o iwcUF, skin copycats, annoyingly clingy ppl, MINORS UNDER 16 STRICTLY DNI,}}$ $\color{#4a3e04}{\textsf{ racists, preds, horny weirdos, ppl who make shadow A TWINK PLS DNI. toxic shippers, OVERLY woke ppl, im mostly a caps person so if }}$ $\color{#8a8505}{\textsf{that's annoying to u just tell me!! i also love sarcasm, so beware. if you don't like it, u can tell me}}$ $\color{#b7c593}{\textsf{ i WILL remove/block if you're labeled as any of these}}$ $\color{#FEFCE3}{\textsf{please do not be surprised or offended if i'm not on ur friend list anymore! also I will most likely unfriend if we don't int at all in 3 weeks, im sorry}}$ 
+I've been grieving AND mourning my boyfriend for 2 months now. Went to visit his grave, he's actually gone; so I'm going through a really hard time right now. I might be extremely easy irritable and some times I could be unnapproachable (dry/late resps or will be mostly non verbal) unless you just want cuddles. I am still friendly, but I might have really bad mood swings. PLUS I am really busy with school. please do not expect much from me as I am soo up to making new friends, just not up to being around for too long (except its cuddling in absolute silence), so yes, this is a huge warning before you int.
 
- </div>
+DNI list is the same as before: =15 iwec, +25iwecUF. i will not tolerate racists, homophobes, horny creepy weirdos, REALLY intense ppl (i will get irritated), copycats, preds, toxic shippers, gifts beggers, wannabes, etc. 
 
-<div align="center">
-
-$\color{#1f5677}{\textsf{I APOLOGIZE IN ADVANCE if i make you uncomfy!! I srs DO NOT mean it}}$ $\color{#357a88}{\textsf{, i have requests disabled so u must whisper me if you}}$ $\color{#4b8383}{\textsf{ want me to add u/want to give me an item!!!!}}$
-
-
-<div align="center">
-
-$\color{#a53e51}{\textsf{if we're alr friends, don't be shy to approach me, i ALWAYS enc c*h!! doesn't matter}}$ $\color{#98666d}{\textsf{if i'm already with other friends, unless said otherwise ON NAME!}}$
-
-</div>
-
-
-<div align="center">
-
-guys i am extremely friendly (i swear), im just kinda awkward to be around at first becuase i am NOT good at keeping convos going, mainly because i am offtab / afk / busy with school ALMOST ALL THE TIME!! Please keep that in mind before you int ,, and be patient with me please,
-cries
-
+I actually can take jokes, just don't be a jerk and it'll be fine. Don't be scared to int, I'm always w2i/dm2i as my requests are all disabled (friend req AND item req)
 </div>
